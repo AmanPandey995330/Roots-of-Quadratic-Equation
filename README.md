@@ -1,1 +1,0 @@
-# Roots-of-Quadratic-Equation
